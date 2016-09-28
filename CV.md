@@ -1,4 +1,7 @@
 #CV Martijn de Leeuw
+
+![Imgur](http://i.imgur.com/KVi9bK6s.jpg)
+
 ##Personal Information
 - Name: Martijn de Leeuw
 - Date of birth: 19/04/1994
