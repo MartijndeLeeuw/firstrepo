@@ -18,6 +18,10 @@
 -   07/2011 - present   Postman, Spotta 
 
 ##Other activities
+- National Talent KNDB for five years
+
+As a National Talent I participated in strict training regimes and participated in multiple Dutch, European and World championships
+
 - Organizing multiple Dutch Youth Championships draughts
 - 2013-2015 cash audit draughts club VGO
 
@@ -29,4 +33,4 @@
 - English: fluent
 
 ##Something about myself
-    
+Since I was a kid I play draughts, the stategic and analytic part of the game are very attractive to me. In my free time I also like to do sports such as cycling, football, tennis, badminton and squash. Finally, I love reading books, in particular popular scientific books. 
