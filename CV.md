@@ -1,5 +1,4 @@
 #CV Martijn de Leeuw
-
 ##Personal Information
 - Name: Martijn de Leeuw
 - Date of birth: 19/04/1994
